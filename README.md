@@ -3,7 +3,7 @@ Marty Lobdell - Study Less Study Smart
 
 1. Break your study into little pieces with reinforcement.
 2. Create a Study Area.
-3. The more acive you are in your studying the more effective.
+3. The more active you are in your studying the more effective.
 4. Recognition vs Recollection ( Don't highlight books)
 5. Don't undo good studyng by sleeping inadequately. Rapid Eye Movements consoliate and store permanent momeries.
 6. Take notes. The first moment after the class expand on each snippet that you jotted down.
